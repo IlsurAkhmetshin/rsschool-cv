@@ -5,18 +5,15 @@
 
 ## Current Occupation  
 ##### Planning & Procurement in Automotive
-___
 
 ## Education 
 ##### 2010-2013, Orthopedic Dentistry, Naberezhnochelninsky Medical College
-___
 
 ## Skills
 
 * ##### Graphical Design
 * ##### Automotive 
 * ##### Strong team player
-___
 
 ## Languages
 * ##### Russian : Native
